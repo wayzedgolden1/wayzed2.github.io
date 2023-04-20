@@ -1,0 +1,1 @@
+# wayzed2.github.io
